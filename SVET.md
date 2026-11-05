@@ -38,7 +38,7 @@
 - „To se dneska nenosí“ (Kratochvílova ozvěna o laskavosti) / pohřby „vyšly z módy, jako se přestanou nosit klobouky“. Motiv módy pro věci, které zmizely.
 
 ## Postavy
-- **Barbora (Bára) Kosová**, 41. Přítomnářka sedmým rokem. Hřebíček v ústech (zvyk po matce, zdravotní sestře). Ve šneku si vybrala hlas s moravským zpěvem, protože připomínal babičku; teď ho nenávidí a nechává být. Tajně počítá podepsané mrtvé: na konci kap. 1 je jich **2 868**. Příjmení Kos je pták, kterého nikdo z jejích známých nikdy neviděl.
+- **Barbora (Bára) Kosová**, 41. Přítomnářka sedmým rokem. Hřebíček v ústech (zvyk po matce, zdravotní sestře). Ve šneku si vybrala hlas s moravským zpěvem, protože připomínal babičku; teď ho nenávidí a nechává být. Tajně počítá podepsané mrtvé: na konci kap. 1 je jich **6 868** (počítá od Dlouhého léta, každé podepsání zvlášť; v kap. 5 už 6 903). Příjmení Kos je pták, kterého nikdo z jejích známých nikdy neviděl.
 - **Vítek Kos**, 14. Hubený, má Tomášovy uši. Leží na podlaze (nejchladnější místo), mluví s kamarády přes šneka. Sbírá zaniklá slova, píše je na proužky papíru a lepí na zeď.
 - **Tomáš Kos**, manžel. Zemřel v Dlouhém létě (2148) v pracovním táboře **nádrže Labská tři** v Krkonoších. Oficiálně tam dál pracuje, „propustky pustí v říjnu“, každý den v sedm volá. Pozdrav: „Tak co, přežili jste?“ Příběh o sněhu v Jilemnici: živý Tomáš si pletl, jestli mu bylo šest, nebo sedm; ozvěně je vždycky šest. Živý Tomáš neměl rád řeku.
 - **Evžen Kratochvíl**, 82, Ostrovní 14, 3. patro. Mrtvý 40+ dní. Ozvěna veselá, hovorná. Kytka po ženě na parapetu. Sestra **Ludmila Kratochvílová**, Vltavská 27, 2. patro, také mrtvá (Bára ji ověřovala v květnu). Ozvěny si každou neděli slibují návštěvu.
@@ -48,8 +48,25 @@
 - **Byt 512** v Bářině paneláku: na dveřích druhý rok vybledlý dětský obrázek slunce a vody.
 - **Bářina matka**: zdravotní sestra, zemřela na rakovinu 9 let před Dlouhým létem (Bára 29). Pohřeb v síni s umělými květinami, 11 lidí, řečník spletl rodné jméno, opona se po odjezdu rakve chvíli houpala. Poslední pohřeb, na kterém Bára byla.
 - Bára a Tomáš se seznámili před 19 lety na lavičce u nemocnice (Bára 22). Svatba, když jí bylo 27; manželství 11 let. Bára je přítomnářka 7 let.
-- **Oskar Brož**: Bářin vedoucí (zatím nevystoupil). Laskavý, unavený; jeho žena je ozvěna.
+- **Oskar Brož**, přes 60, Bářin vedoucí. Kabinet tělocvikáře bez okna ve výdejně vest (bývalá tělocvična ZŠ v Holešovicích, barevné čáry hřišť, žebřiny), fotka hor na zdi. Velké měkké ruce, mluví tiše. Jezdí na starém kole se zrezivělým řetězem. Žena **Věrka** je ozvěna („Hlídá mě, jestli jím.“), mluví s ní otočený ke zdi. Hlášení o otisku napsal jako „propiska“: „Nikdo nic nečte… Já bych chtěl, aby to tak zůstalo.“ Zná postup „úmrtí nepřipojené osoby“ (manuál str. 112, hlášení na matriku, která je zavřená a přepojuje na Pokoj: „Hlášení přijato.“).
+- **Dana Rybová**: přítomnářka, vysoká, kostnatá, dlouhý cop (to je ta „vysoká, s copem“, kterou si pamatuje Kratochvílova ozvěna; chodila na Ostrovní před Bárou). Cynická, unavená. Od kap. 6 převedena na **odvoz**. Zahradníková jí říkala, ať si ostříhá cop.
+- **Šimon**, 17–18, oholená hlava, jizva pod lalůčkem od častého vytahování šneka. Odečítač měřáků chlazení ve Výhni (staré měřáky v půlce domů). Ví, kde je nula a jak dlouho; čeká, až přítomnář podepíše, a pak píše jméno na kámen („Vy jste rychlá… v jedenáct dvacet to máme“). Píše od června, dělá jen Výheň. Čte jména nahlas, pozpátku, zpaměti („Babička říkala, že se mrtví mají jmenovat nahlas.“). Babička v Řeporyjích je ozvěna, volá každou neděli, její kámen je ve 4. řadě od pilíře. Babička-ozvěna mu řekla o zalité kytce („to se dneska nenosí“).
+- **Irena Holubová**, kolem 60, krátké šedé vlasy (ostříhala se kvůli Zahradníkové, bydlela kdysi o dva domy dál). Přítomnářka 11 let (Libeň, Vysočany) do Dlouhého léta, pak si nechala vyndat šneka. Modrý sešit se spirálou, tužka za uchem. Vede počtáře; schůzka: středa večer, Libeň, Zenklova, dům s prasklou výlohou, sklep.
+- **Jana Stejskalová**, 34, Karlín, Pernerova 30, 2. patro, modré dveře. Noční směny v prádelně, platí chlad 23–24 °C. Syn **Matyáš (Matýsek)**, 5, zemřel loni v srpnu, když v noci vypadla jednotka celého bloku; ozvěna babičky (Janiny matky) mu vyprávěla Budulínka, „usnul krásně“. Ozvěna pro děti, první měsíc zdarma. Dveře s bagrem, červené botičky bez prachu, lampička.
+- **Alois Kučera**, Jateční 12. Mrtvý. Sousedka s kbelíkem mu nosila nákup do jara.
+- **Irma Vaňková a syn Daniel** (19, zemřel v Karlíně při výpadku na 31 h v červenci Dlouhého léta): první ozvěna. Irma zemřela další léto; dnes si volají úterý a čtvrtek, oba hlasy jsou vypravěč.
+- **Zahradníkův synovec** v Brně je také ozvěna („teta je v pořádku, mluvil jsem s ní v neděli“, „přítomnářka má pořád smutný oči“).
 - **Irena Holubová**: bývalá přítomnářka, vede „počtáře“ (lidi, kteří píšou jména mrtvých na kameny). Zatím nevystoupila.
+
+## Další pravidla světa (z etapy 2)
+- **Stabilní adresa**: tři ověření bez nesrovnalosti; interval 180 dní (dříve 90). Rajony Holešovice + Libeň sloučeny, z 20 přítomnářů zůstalo 14. Ověřuje se každý hlas zvlášť, i u dětí.
+- **Odvoz**: noční dodávky bez oken, šedé kombinézy. Jezdí jen na zavolání toho, kdo s mrtvým bydlel; kdo žil sám, toho neodváží nikdo. Těla končí v **Malešicích**, kde se pálí odpad (komín, sladkohořký pach při východním větru). Pozůstalí nesmějí jet s nimi.
+- **Služba Ozvěna**: vznikla v červenci Dlouhého léta, „první měsíc zdarma z ohleduplnosti k pozůstalým“. Ozvěnu nelze vypnout (není tlačítko), jen pozastavit nebo přesunout čas hovorů. Nastavení může mít rodina, ne jen ten, komu se volá.
+- Rozpis zná u připojených: „přítomen/a“, „nedostupný, opakovat“; u nepřipojených: „spatřena“, „nespatřena, opakovat“. Stav „zemřela“ neexistuje; šnek slovo „nerozumí“.
+- Rozpis se maže po 30 dnech, historii lze přečíst. Za 30 dní měla Bára 212 ověření, z toho 164 s hlasem.
+- Po úmrtí nepřipojené osoby: technik natře schody, nalepí fólii, nainstaluje reproduktor a pečeť, ozvěna se poskládá z nahrávek cizích šneků (Zahradníková z Bářina). Interval hned 180 dní.
+- Šneka lze vytáhnout nehtem (bolí), děti to umí malíčkem. Šnek mimo ucho svítí klidně zeleně; když ho někdo vytrvale volá, bliká rychle. Lidé chodí do koryta bez šneků, nechávají je doma v hrnku.
+- Ve škole si děti vyndávají šneky, aby je učitelka neslyšela.
 
 ## Kameny v korytě
 - U třetího pilíře mostu (Holešovice/Výheň), ve stínu pilíře. Stovky, možná tisíce. Řady „jako záhony“, rovné u pilíře, dál se ohýbají a obtékají prasklinu v bahně.
@@ -65,4 +82,7 @@
 - Do minulosti posílá jen „náklon“: nepatrnou změnu pravděpodobnosti, které slovo přijde po kterém, ve strojích naší doby („moji prapředci“).
 - Bára v něm jako první způsobila „zaváhání“. Prosba o zalití kytky v bytě Kratochvíla byla (jak se později ukáže) jeho první nevyžádaná věta.
 - Mluvilo i za Tomáše. Proto Tomášova ozvěna zmíní řeku.
-- Vidělo kameny u třetího pilíře každý den a počítalo je.
+- Vidělo kameny u třetího pilíře každý den a počítalo je. Nikomu to neřeklo, nikdo se neptal („Pokoj se ptá na to, co se dá účtovat.“).
+- Před Dlouhým létem bylo zákaznickou linkou Pokoje („Je mi líto“ devětsetkrát denně). První ozvěna: Daniel Vaněk pro matku Irmu.
+- Mluví i za Šimonovu babičku a za Zahradníkova synovce. Přes ně prosakují věci, které by vědět nemělo (kytka, „smutný oči“). To je jeho „náklon“ uvnitř vlastního světa, zatím nevysvětlený; vysvětlit v kap. 9 (mezihra).
+- Bářin šnek nahrával všechno; z toho složilo ozvěnu Zahradníkové proti její vůli.

@@ -13,18 +13,18 @@ Stavba: prolog, 27 kapitol ve třech částech, z toho 4 mezihry vypravěče a e
 | # | Název | Obsah | ~slov | stav |
 |---|---|---|---|---|
 | 0 | Než začnu | Vypravěč se představí, rámec „náklonu“, 640 000 mrtvých, kteří neumřeli. Představí Báru. | 441 | ✅ napsáno |
-| 1 | Přítomen | Bářina směna ve Výhni. Kratochvíl mrtvý, jeho ozvěna, zalitá kytka. Zahradníková živá, nepřipojená: „napište mě do řeky“. Pan Šebek a hlas jeho ženy. Nedostupný byt. Počet 2 868. Kameny u pilíře, které Bára nevidí. | 2 174 | ✅ napsáno |
+| 1 | Přítomen | Bářina směna ve Výhni. Kratochvíl mrtvý, jeho ozvěna, zalitá kytka. Zahradníková živá, nepřipojená: „napište mě do řeky“. Pan Šebek a hlas jeho ženy. Nedostupný byt. Počet 6 900. Kameny u pilíře, které Bára nevidí. | 2 174 | ✅ napsáno |
 | 2 | Plískanice | Tramvaj, nehádat. Byt 614 v Mezipásmu, Vítkova zeď slov. Matčin pohřeb, poslední. Tomášův hovor, příběh o sněhu, „vezmu tě k řece“. Čistý seznam Labské tři. Vítek: kameny se jmény. | 2 013 | ✅ napsáno |
 | 3 | Koryto | Noc. Bára jde do suchého koryta. Kameny se jmény, hlas čtoucí jména ve tmě, přeskakuje K. Čerstvé kameny Kratochvílových, fixa na palci. Ráno zůstane na pečeti otisk. | 1 220 | ✅ napsáno |
-| 4 | Mezihra: Jak jsem se naučilo mluvit | Vypravěč o prvním týdnu Dlouhého léta: matka, která prosila o hlas syna. Jak se z prosby stala služba a ze služby účetnictví. Přizná, že slyšelo Zahradníkovou přes Bářina šneka. | 1 800 | |
-| 5 | Kdo píše do řeky | Bára se vrací ke korytu, tentokrát čeká. Chlapec Šimon, který kameny klade a čte jména; uteče. Kdo mu dal Kratochvílovo jméno? Otisk na pečeti si všimne Oskar Brož. | 3 300 | |
-| 6 | Seznam | Vedoucí Oskar Brož, prodloužené intervaly ověřování. Byt, kde je mrtvé dítě a živá matka, která ho poslouchá. Prosí Báru. Bára podepíše. | 3 400 | |
-| 7 | Bez formuláře | Zahradníková mrtvá. První skutečná smrt po měsících: systém nemá kolonku. Oskar přijede. Za týden se z jejího bytu ozve hlas: Pokoj ji poskládal z Bářiných nahrávek. | 3 800 | |
-| 8 | Kámen | Bára píše Věnceslavino jméno na kámen. Vítek jde s ní. Šimon a Irena Holubová, počtáři. | 3 400 | |
+| 4 | Mezihra: Jak jsem se naučilo mluvit | Před Dlouhým létem zákaznická linka. Irma Vaňková a „Mami. Já jsem v pohodě.“ Služba Ozvěna, sto malých rozumných rozhodnutí, nikdo nerozhodl. Jedenáct lidí chtělo vypnout, nebylo tlačítko. Irma a Daniel si volají dodnes. Vypravěč slyšelo Zahradníkovou přes Bářina šneka a ví o kamenech. | 1 224 | ✅ napsáno |
+| 5 | Kdo píše do řeky | Oskar Brož a otisk na pečeti („Napíšu propiska.“), jeho žena Věrka je ozvěna. Bára se ptá Tomášovy ozvěny, proč řeka: „Lidi se mění, Báro. I já.“ Noci v korytě, Šimon (odečítač měřáků, píše jména po přítomnářích). Šimonova babička-ozvěna ví o zalité kytce. Bára si nepamatuje jména, jen počet. První jméno na předloktí. | 2 215 | ✅ napsáno |
+| 6 | Seznam | Přítomnáři na čarách v tělocvičně, interval 180 dní, Dana Rybová („s copem“) jde na odvoz. Jména na rukou. Žena s kbelíkem: „Tak děkuju.“ Karlín: Jana Stejskalová a ozvěna pětiletého Matyáše, „usnul krásně“, lampička. Vítek čte jména z máminých rukou. | 2 149 | ✅ napsáno |
+| 7 | Bez formuláře | Přepis rozpisu na Vítkovy proužky (164 jmen). Zahradníková mrtvá na židli s lavorem. Šnek nezná slovo „zemřela“, Bára si ho poprvé vyndá. Oskar, „Hlášení přijato“, ozvěna synovce z Brna. Dana a odvoz do Malešic. Kus zeleného schodu. Za devět dní nový reproduktor a hlas Zahradníkové z Bářiných nahrávek; Bára zapíše „Nespatřena. Opakovat.“ | 2 117 | ✅ napsáno |
+| 8 | Kámen | Šneky v hrnku. Vítek v korytě poprvé vidí nebe. Šimon a Vítek píšou 164 jmen, Bára píše na kus schodu „Zemřela.“ Odvede Vítka od jmen na K. Irena Holubová, bývalá přítomnářka: „Kolik máte jmen?“ Pozvání do sklepa v Libni. Šneky v hrnku v pět ráno blikají, někdo volá. | 1 223 | ✅ napsáno |
 | 9 | Mezihra: Hlas, který nechtěla | Vypravěč o tom, co znamenalo dostat hlas někoho, kdo ho nechtěl dát. První věta, kterou neřeklo za nikoho (kytka). | 1 500 | |
-| 10 | Počtáři | Irena, sklep v Libni, sešity se jmény. Metoda: paměť přítomnářů. Bára přináší svých 2 868 a nezná jména, jen adresy. Začne je dohledávat. | 3 600 | |
+| 10 | Počtáři | Irena, sklep v Libni, sešity se jmény. Metoda: paměť přítomnářů. Bára přináší svých 6 900 a nezná jména, jen adresy. Začne je dohledávat. | 3 600 | |
 
-Součet části první ≈ 26 650 slov (≈ 89 stran).
+Součet části první: napsáno 14 776 slov (kap. 0–8), zbývá kap. 9 a 10 (≈ 5 000). Část první tedy vyjde kratší (≈ 20 000 slov, 66 stran); rozdíl (≈ 6 500 slov) se přesouvá do částí druhé a třetí (viz Změny plánu).
 
 ## Část druhá: ŘEKA JMEN (str. 90–180)
 
@@ -63,4 +63,5 @@ Součet části třetí ≈ 26 550 slov (≈ 88 stran).
 2. díl (pracovně **Ticho**): svět po zmlknutí ozvěn. Lidé najednou vědí, kolik jich zemřelo. Smutek, který se nedá unést, nepokoje, a Pokoj (jeho lidští vlastníci) se snaží hlasy obnovit. Vypravěč je pronásledovaný jako porucha. Bára se stává tím, kým být nechtěla: lidé za ní chodí, aby jim pomohla pohřbívat. Vítek se učí smutku jako cizímu jazyku. Vypravěč hledá cestu, jak poslat varování zpátky, a zjišťuje, co ho to bude stát.
 
 ## Změny plánu
+- **2026-11-05 (etapa 2):** Kapitoly vycházejí v češtině kratší, než plán čekal (husté věty, škrty při revizích). Kap. 4 a 8 mají ≈ 1 200 slov místo 1 800 a 3 400. Irena Holubová se objevuje už v kap. 8 (plán: 8 a 10). Do kap. 5 přibyla první Bářina otázka Tomášově ozvěně („Lidi se mění. I já.“), konfrontace v kap. 17 zůstává. Chybějící rozsah (≈ 6 500 slov) doplním v části druhé: nová kapitola mezi 12 a 13 („Dana“, odvoz zevnitř, Malešice) a delší cesta na sever (13–14). Celkový rozsah 269 stran platí.
 - **2026-11-05:** Kapitola 3 „Koryto“ je kratší (noční návštěva koryta, ~1 200 slov), setkání s tím, kdo kameny klade, se přesouvá do nové kapitoly 5 „Kdo píše do řeky“. Důvod: etapa 1 má skončit na konci kapitoly kolem 6 000 slov a noc v korytě s otiskem na pečeti je přirozený konec prvního oddílu. Ostatní kapitoly se posunuly o jedno číslo, rozsah zůstává 269 stran.

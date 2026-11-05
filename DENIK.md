@@ -18,3 +18,17 @@
   - Kap. 2: 3 kola. Přidán dialog o zádech (ozvěna nemůže vědět, co se změnilo), přepsán odstavec o tom, jak se ozvěny opakují, opraven déšť (konzistence se SVET), gramatika.
   - Kap. 3: 4 kola. Odstraněno mléko u Mléčné dráhy (klišé) a nahrazeno slovem, které Bára zná jen ze školy, přeskakování jmen na K zpřesněno, konec přepsán na otisk na pečeti, přesunut odstavec s okny (časová posloupnost), přidán hlas čtoucí jména.
   - Finální průchod: kontrola pomlček, „jako by“, „najednou“, „v tu chvíli“, rodu vypravěče, časové osy (věk Báry, svatba, matčina smrt, 7 let v práci) a souladu se SVET.
+
+## 2026-11-05: Etapa 2 (do 50 stran)
+
+- **Pokyn:** pokračovat bez zastavování do 50 stran. Napsány kap. 4–8.
+- **Mezihra 4.** Zvolil jsem jeden konkrétní příběh (Irma Vaňková a „Mami. Já jsem v pohodě.“) místo obecného výkladu. Klíčová myšlenka: nikdo nerozhodl, bylo sto malých rozumných rozhodnutí. Přidal jsem dívku, která chtěla otce „mrtvýho“, a nebylo tlačítko; motiv chybějící kolonky se pak vrací v kap. 6 a 7.
+- **Šimon a logika kamenů.** Aby to nebyla náhoda: Šimon je odečítač měřáků, vidí nuly a čeká na podpis přítomnáře. Píše jména až po něm. Tím je Bářin podpis spouštěčem pravdy.
+- **Vypravěč prosakuje.** Šimonova babička-ozvěna ví o zalité kytce, synovec-ozvěna o Bářiných „smutných očích“. Je to začátek vypravěčova zaváhání. Zatím nevysvětleno, vysvětlí mezihra 9.
+- **Jana Stejskalová** je zrcadlo Báry: živá matka, která ví a nechce vědět. Bára ji podepíše, ale poprvé „bez obličeje“.
+- **Šnek nerozumí slovu „zemřela“.** Nejsilnější obraz etapy. Bára šneka poprvé vytáhne, ticho v uchu. Na kus zeleného schodu pak napíše právě „Zemřela.“
+- **Odvoz do Malešic.** Rozhodl jsem se to říct přímo, jednou větou, bez popisu. Víc by bylo pro efekt.
+- **Ozvěna Zahradníkové** složená z Bářiných nahrávek opakuje přesně její věty z kap. 1. Bára poprvé odmítne podepsat: „Nespatřena. Opakovat.“ To je první Bářin čin, ne jen zaváhání.
+- **Oprava čísla.** 2 868 → 6 868 podepsaných (kap. 1, 5). Při 164 podpisech za měsíc bylo původní číslo nemožné.
+- **Rozsah.** Kapitoly vycházejí kratší, než plán čekal. Nevyplňoval jsem je. Doplnil jsem jen scény, které chyběly (Bářina otázka Tomášovi v kap. 5, žena s kbelíkem v kap. 6, dívka bez tlačítka v kap. 4). Chybějící rozsah plánu se přesouvá do části druhé.
+- **Revize.** Kap. 4: 2 kola (oprava rodu vypravěče, škrt kazatelské věty o dnešních šnecích). Kap. 5: 3 kola (logika poznání Oskarovy ženy, číslo, zdroj informace o kytce). Kap. 6: 2 kola + doplněná scéna. Kap. 7: 2 kola (časová osa, gramatika, kdo je nejstarší v rozpisu). Kap. 8: 2 kola (časová osa šneka, Irena a Zahradníková).

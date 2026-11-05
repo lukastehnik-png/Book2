@@ -158,7 +158,7 @@ Na Vltavské minula dvacet sedmičku a nezastavila se.
 
 Sedm.
 
-Bára počítala. Nikdo jí to neukládal a nikomu o tom neřekla. Nezapisovala si to, ani do šneka, ani na papír. Nosila to číslo v hlavě, jako se nosí kamínek v botě, který si člověk nevyklepne, aby nezapomněl, že jde. Ráno jich bylo dva tisíce osm set šedesát jedna. Teď jich bylo dva tisíce osm set šedesát osm.
+Bára počítala. Nikdo jí to neukládal a nikomu o tom neřekla. Nezapisovala si to, ani do šneka, ani na papír. Nosila to číslo v hlavě, jako se nosí kamínek v botě, který si člověk nevyklepne, aby nezapomněl, že jde. Ráno jich bylo šest tisíc osm set šedesát jedna. Teď jich bylo šest tisíc osm set šedesát osm.
 
 Nic přitom necítila. Číslo bylo to, co měla místo toho.
 
