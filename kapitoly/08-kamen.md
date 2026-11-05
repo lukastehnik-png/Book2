@@ -50,7 +50,7 @@ Vítek otevřel krabici.
 
 Šimon se díval na proužky papíru. Na řady, srovnané a svázané provázkem, na nakloněné, netrpělivé písmo. Neřekl nic. Pak přisunul tašku blíž k Vítkovi a sedl si o kus dál, aby měl místo.
 
-Psali do čtyř do rána. Vítek četl proužky, jeden po druhém, a hledal v tašce kámen, který se k jménu hodil. Nora nevěděla, podle čeho vybírá, ale vybíral pečlivě, něco obracel v ruce a vracel do tašky a bral jiný. Pak psal. Když dopsal, četl to jméno nahlas, a Šimon, který mezitím klečel o kus dál a pokládal kameny na konec řady, ho po něm zopakoval, a tak to šlo, dva tiché hlasy, jeden po druhém, sto šedesát čtyřikrát.
+Psali do čtyř do rána. Vítek četl proužky, jeden po druhém, a hledal v tašce kámen, který se k jménu hodil. Nora nevěděla, podle čeho vybírá, ale vybíral pečlivě, něco obracel v ruce a vracel do tašky a bral jiný. Když v tašce došly kameny, hledali je po korytě, úlomky dlažby a cihel, kterých tu bylo dost. Pak psal. Když dopsal, četl to jméno nahlas, a Šimon, který mezitím klečel o kus dál a pokládal kameny na konec řady, ho po něm zopakoval, a tak to šlo, dva tiché hlasy, jeden po druhém, sto šedesát čtyřikrát.
 
 Nora psala jen jeden.
 
@@ -82,7 +82,7 @@ Vítek se otočil. Chvíli stál, v té tmě nebylo vidět, s jakým obličejem,
 
 „Nora Kos?“
 
-Žena stála u pilíře. Nora ji neslyšela přijít. Bylo jí kolem šedesáti, měla krátké šedé vlasy, ostříhané nakrátko, jak se stříhají vlasy, o které se nechce nikdo starat, a v ruce sešit. Skutečný sešit, s modrými deskami a se spirálou, která se leskla v lampičce.
+Žena stála u pilíře. Nora ji neslyšela přijít. Bylo jí kolem šedesáti, měla šedé vlasy ostříhané nakrátko, jak se stříhají vlasy, o které se nikdo nechce starat, a v ruce sešit. Skutečný sešit, s modrými deskami a se spirálou, která se leskla v lampičce.
 
 „Šimon říkal, že přijdete,“ řekla. „Já jsem Irena.“
 
@@ -100,7 +100,7 @@ Nora nevěděla, co říct.
 
 „Šest tisíc devět set...“
 
-„Ne.“ Irena zavrtěla hlavou. Řekla to vlídně, ale tak, jak se opravuje dítě, které počítá na prstech. „Ne kolik jste podepsala. To vím. To ví každá z nás, i když to nikomu neříká. Kolik máte jmen?“
+„Ne.“ Irena zavrtěla hlavou. Řekla to vlídně, ale tak, jak se opravuje dítě, které počítá na prstech. „Ne kolik jste podepsala. Takové číslo nosí každá z nás, i když ho nikomu neříká. Kolik máte jmen?“
 
 Nora se podívala na Vítka. Vítek stál s krabicí od bot v náručí, prázdnou, a díval se na Irenu.
 

@@ -31,4 +31,15 @@
 - **Ozvěna Zahradníkové** složená z Nořiných nahrávek opakuje přesně její věty z kap. 1. Nora poprvé odmítne podepsat: „Nespatřena. Opakovat.“ To je první Nořin čin, ne jen zaváhání.
 - **Oprava čísla.** 2 868 → 6 868 podepsaných (kap. 1, 5). Při 164 podpisech za měsíc bylo původní číslo nemožné.
 - **Rozsah.** Kapitoly vycházejí kratší, než plán čekal. Nevyplňoval jsem je. Doplnil jsem jen scény, které chyběly (Nořina otázka Tomášovi v kap. 5, žena s kbelíkem v kap. 6, dívka bez tlačítka v kap. 4). Chybějící rozsah plánu se přesouvá do části druhé.
-- **Revize.** Kap. 4: 2 kola (oprava rodu vypravěče, škrt kazatelské věty o dnešních šnecích). Kap. 5: 3 kola (logika poznání Oskarovy ženy, číslo, zdroj informace o kytce). Kap. 6: 2 kola + doplněná scéna. Kap. 7: 2 kola (časová osa, gramatika, kdo je nejstarší v rozpisu). Kap. 8: 2 kola (časová osa šneka, Irena a Zahradníková).
+- **Revize v etapě 2 (pravdivě).** Kap. 4: 2 kola. Kap. 5: 3 kola. Kap. 6: 2 kola + doplněná scéna. Kap. 7: 2 kola. Kap. 8: 2 kola. Revize byly cílené přepisy slabých míst, ne nové psaní celé kapitoly. Souvislé čtení celého textu v etapě 2 neproběhlo, jen kontrola vyhledáváním. To neodpovídá zadání (min. 3 kola), doplněno níže.
+
+## 2026-11-05: Přejmenování a třetí kolo revize
+
+- **Jméno hrdinky:** Barbora (Bára) Kosová → **Nora Kos**, podle Lukášovy volby. Pravidlo 12a v PRAVIDLA.md. Příjmení Kos zůstává kvůli motivu kosa v prologu. Ženské příjmení bez -ová (Paní Kos, Nořin). Verze před přejmenováním: `kapitoly/_archiv/*.pred-prejmenovanim.md`.
+- **Třetí kolo kap. 4–8** (každou kapitolu jsem celou znovu přečetl, verze před kolem jsou v archivu jako `*-pred-3kolem.md`):
+  - Kap. 4: gramatika („Druhý den ráno“), počet lidí, kteří chtěli vypnout ozvěnu, změněn z 11 na 9 (náhodná shoda s 11 000 volajícími), rozpor „Nevím proč. Dnes vím“ opraven.
+  - Kap. 5: pach místo „vonělo“ u potu, škrt zdvojeného vysvětlení, proč se Oskar otáčí ke zdi, nelogické „do stínu“ v noci, „Nevěděla, co nejsem“ přepsáno, „kolo bez předního kola“.
+  - Kap. 6: časové pořadí dnů v týdnu, slovo „ozvěna“ použité pro odraz zvuku nahrazeno (je to termín světa), „dvacet tři stupňů“, uhlazena věta o poděkování.
+  - Kap. 7: Nora si sedá na zem (předtím seděla, aniž si sedla), nepravděpodobné vyškrábání kamene klíčem nahrazeno vypáčením z praskliny, věta o neděli.
+  - Kap. 8: 164 kamenů se nevejde do jedné tašky (doplněno hledání v korytě), zdvojené „krátké… nakrátko“, Irenina replika o počtu.
+- **Souvislý průchod:** kap. 4–8 přečteny celé za sebou. Kap. 0–3 jsem celé četl v etapě 1; po přejmenování jsem je kontroloval vyhledáváním (tvary jména, rod vypravěče, pomlčky), ne znovu čtením.

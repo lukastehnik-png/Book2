@@ -54,7 +54,7 @@ Ne čísla domů. Jména.
 
 Dělala to celý týden. U každých dveří, než vešla, si jméno řekla v duchu dvakrát, jako se říká telefonní číslo, které si člověk nemá kam zapsat. Po pečeti, na schodech, si ho řekla potichu nahlas. A pak, když byla sama, vyhrnula rukáv a připsala ho na předloktí pod Kratochvíla, drobně, fixou s ohryzaným víčkem.
 
-Ve čtvrtek jí došlo místo na levé ruce a začala psát na pravou.
+Než skončil týden, došlo jí místo na levé ruce a začala psát na pravou.
 
 Rukáv vesty to zakrýval. Večer si to nemyla. Spala s rukama na peřině a ráno se na ně dívala, jestli se jména nerozmazala, a nerozmazala se, jen trochu vybledla, a ona je obtáhla znovu. Bylo to hloupé. Věděla, že je to hloupé. Šimon jí řekl *rozpis se pamatuje*, a rozpis se pamatoval třicet dní, a ona měla v šneku třicet dní jmen, která mohla kdykoli otevřít a přepsat na papír, a místo toho si psala na kůži jména, která si už stejně pamatovala.
 
@@ -76,7 +76,7 @@ Nora mlčela. Žena se na ni dívala a čekala, a pak přestala čekat a podíva
 
 „No.“ Žena zvedla kbelík. Chvíli tak stála, s kbelíkem v ruce, jako by zapomněla, kam s ním jde. „Tak děkuju,“ řekla potom, a nebylo poznat za co, a šla nahoru a Nora slyšela, jak za ní cvakly dveře.
 
-Pak ještě chvíli stála na schodech a nemohla se pohnout, protože to bylo poprvé za sedm let, co jí někdo za něco v tomhle domě poděkoval a nebyl to reproduktor.
+Nora ještě chvíli stála na schodech. Za sedm let jí na schodech poprvé poděkoval někdo, kdo nebyl reproduktor.
 
 ---
 
@@ -160,11 +160,11 @@ Na schodech se Nora zastavila v půli patra, na odpočívadle pod oknem, které 
 
 Shora, přes modré dveře, bylo slyšet smích. Tenký a chraptivý.
 
-Nora vyhrnula pravý rukáv. Místo zbývalo jen u lokte, na kosti, kde se fixou psalo špatně. Napsala tam *Matyáš Stejskal*, a protože místo zbylo, připsala *5 let*, jak to bylo na kameni u pilíře, na tom, co patřil někomu jinému, Janu Pickovi. Kolik jich tam bylo, pětiletých. Neprošla je všechny.
+Nora vyhrnula pravý rukáv. Místo zbývalo jen u lokte, na kosti, kde se fixou psalo špatně. Napsala tam *Matyáš Stejskal*, a protože místo zbylo, připsala *5 let*, jak to bylo na kameni u pilíře, na tom, který patřil někomu jinému, Janu Pickovi. Kolik jich tam bylo, pětiletých. Neprošla je všechny.
 
-Pak řekla to jméno nahlas. Na schodech to znělo jinak než v korytě. Ozvěna se odrazila od dlaždiček ve tvaru hvězd a vrátila se k ní.
+Pak řekla to jméno nahlas. Na schodech to znělo jinak než v korytě. Hlas se odrazil od dlaždiček ve tvaru hvězd a vrátil se k ní.
 
-Pomyslela na Janu Stejskalovou v šatech s puntíky, jak stojí v chladné předsíni a dívá se na dveře s bagrem. Na to, kolik stojí dvacet tři stupně. Na to, jak řekla *usnul krásně* hlasem někoho, kdo to říká poprvé, i když to říkala už stokrát, aspoň v duchu. Na lampičku.
+Pomyslela na Janu Stejskalovou v šatech s puntíky, jak stojí v chladné předsíni a dívá se na dveře s bagrem. Na to, kolik stojí dvacet tři stupňů. Na to, jak řekla *usnul krásně* hlasem někoho, kdo to říká poprvé, i když to říkala už stokrát, aspoň v duchu. Na lampičku.
 
 A pak, protože to nešlo jinak, pomyslela na byt 614, na zelenou tečku nad dveřmi, na *Tak co, vy dva? Přežili jste?* A na sebe, jak sedí u stolu a jí čočku a říká *Dobrý. Už dlouho dobrý.*
 

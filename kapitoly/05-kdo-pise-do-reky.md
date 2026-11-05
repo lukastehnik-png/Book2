@@ -1,6 +1,6 @@
 # 5. Kdo píše do řeky
 
-Výdejna vest byla v bývalé tělocvičně základní školy v Holešovicích. Na zdech ještě visely žebřiny a na podlaze byly vidět barevné čáry hřišť, modré, červené, žluté, které se křížily a nikam nevedly. Vesty visely v řadách na stojanech jako vypreparovaní lidé bez hlav a bez rukou a nabíjely se. Vonělo to tu gumou a potem a dezinfekcí, kterou nikdo nešetřil, protože byla levnější než voda.
+Výdejna vest byla v bývalé tělocvičně základní školy v Holešovicích. Na zdech ještě visely žebřiny a na podlaze byly vidět barevné čáry hřišť, modré, červené, žluté, které se křížily a nikam nevedly. Vesty visely v řadách na stojanech jako vypreparovaní lidé bez hlav a bez rukou a nabíjely se. Bylo tu cítit gumu, pot a dezinfekci, kterou nikdo nešetřil, protože byla levnější než voda.
 
 Nora vracela vestu ve dvě odpoledne. Položila ji na pult, výdejní dívka ji naskenovala, a když Nora odcházela, ozvalo se ve šneku: „Noro, zastavte se, prosím, u vedoucího.“
 
@@ -20,7 +20,7 @@ Sedla si.
 
 Oskar se podíval na její ruce. Ležely jí v klíně, pravá přes levou, a ona je neschovala, protože schovat je by bylo horší než je nechat ležet. Šmouha na palci už byla jen stín, šedivá mapa v rýhách, ale byla tam.
 
-„Propiska,“ zopakoval. Pokýval hlavou, jako by to slovo zkoušel, jestli unese váhu. „Dobře. Napíšu propiska.“ Něco ťukl do displeje. „Myjte si ruce, Noro. A adresy si pište do šneka. Od toho tam je.“
+„Propiska,“ zopakoval. Pokýval hlavou, jako by zkoušel, jestli to slovo unese váhu. „Dobře. Napíšu propiska.“ Něco ťukl do displeje. „Myjte si ruce, Noro. A adresy si pište do šneka. Od toho tam je.“
 
 „Ano.“
 
@@ -28,7 +28,7 @@ Chvíli bylo ticho. Ventilátor přeléval vzduch. Oskar se díval na fotografii
 
 Pak se mu v uchu ozvalo něco, co Nora neslyšela, a jeho obličej se změnil. Změkl. Nora ten výraz znala ze všech předsíní, kde kdy stála.
 
-„Ahoj, Věrko,“ řekl Oskar tiše a otočil se na židli trochu stranou, ke zdi, jako se člověk otočí, když chce mít soukromí v místnosti, kde žádné není. „Ne, ještě jsem v práci. Ne, ještě ne. Snědl, snědl. Ty taky. Jo. Jo. Za hodinu.“ Poklepal si na ucho a otočil se zpátky. Měl lehce vlhké oči, nebo to bylo tím horkem, a usmál se na Noru omluvně. „Manželka. Hlídá mě, jestli jím.“
+„Ahoj, Věrko,“ řekl Oskar tiše a otočil se na židli trochu stranou, ke zdi. „Ne, ještě jsem v práci. Ne, ještě ne. Snědl, snědl. Ty taky. Jo. Jo. Za hodinu.“ Poklepal si na ucho a otočil se zpátky. Měl lehce vlhké oči, nebo to bylo tím horkem, a usmál se na Noru omluvně. „Manželka. Hlídá mě, jestli jím.“
 
 „To je od ní hezké,“ řekla Nora.
 
@@ -74,15 +74,15 @@ Ozvěny se neměnily. Byla to jediná věc, kterou o nich věděla jistě, za se
 
 „Dobrou, Noro. Ať přežijete i noc.“
 
-Zelená tečka zhasla. Vítek se na ni pořád díval, a ona věděla, že se chce na něco zeptat, a věděla, že ví, že na to nemá odpověď, a tak se nezeptal. Lehl si zpátky na podlahu a otočil se ke zdi.
+Zelená tečka zhasla. Vítek se na ni pořád díval, a ona věděla, že se chce na něco zeptat, a on věděl, že odpověď nedostane, a tak se nezeptal. Lehl si zpátky na podlahu a otočil se ke zdi.
 
 ---
 
 Šla k řece ještě ten večer, a pak další, a pak další.
 
-Nevěděla, co tam dělá. Vítkovi nechávala lístečky o nočním výdeji vody a Vítek se nikdy na nic neptal, protože spal, nebo protože nechtěl. Jezdila nočním spojem s lidmi, kteří mluvili s mrtvými, a vystupovala na nábřeží a sestupovala po starých schodech do koryta a sedala si do stínu jedné z lodí, Svatavy, s rezavým bokem a s okny, kam se nedívala, odkud bylo vidět na třetí pilíř.
+Nevěděla, co tam dělá. Vítkovi nechávala lístečky o nočním výdeji vody a Vítek se nikdy na nic neptal, protože spal, nebo protože nechtěl. Jezdila nočním spojem s lidmi, kteří mluvili s mrtvými, a vystupovala na nábřeží a sestupovala po starých schodech do koryta a sedala si ke Svatavě, lodi s rezavým bokem a s okny, do kterých se nedívala. Od ní bylo vidět na třetí pilíř.
 
-Kamenů přibývalo. Ne moc. Pět za noc, deset. Přicházely, když tam nebyla, nebo když usnula, opřená o teplý plech, a když se probrala, na konci řady ležely nové, čisté, bez prachu. Jednou mezi nimi byla dvě jména z jejího rozpisu, adresy, kde stála ten den v předsíni a ptala se.
+Kamenů přibývalo. Ne moc. Pět za noc, deset. Přibývaly, když tam nebyla, nebo když usnula, opřená o teplý plech, a když se probrala, na konci řady ležely nové, čisté, bez prachu. Jednou mezi nimi byla dvě jména z jejího rozpisu, adresy, kde stála ten den v předsíni a ptala se.
 
 Čtvrtou noc neusnula.
 
@@ -104,7 +104,7 @@ Hlas umlkl. Postava vyskočila.
 
 „Počkejte,“ řekla Nora. „Já nejsem...“
 
-Nevěděla, co nejsem. Nejsem z Pokoje? Byla. Nejsem nebezpečná? Kdo ví.
+Nevěděla, jak tu větu dokončit. Že není z Pokoje? Byla. Že není nebezpečná? Kdo ví.
 
 Postava neutekla. Stála deset kroků od ní, napjatá jako zvíře, které ještě neví, kterým směrem, a dívala se na Noru, a Nora se dívala na ni. Byl to chlapec. Starší než Vítek, ale ne o moc, sedmnáct, osmnáct, s oholenou hlavou a obličejem, který byl v té tmě jen bledá skvrna s očima.
 
@@ -158,7 +158,7 @@ Seděli. Nad korytem bylo nebe tak husté, že vypadalo poškrábané, a ten sv�
 
 „Babička je...“
 
-„Babička je v Řeporyjích,“ řekl Šimon. „Volá mi každou neděli. Peče buchty, a já jí říkám, že je výborný, a ona se směje.“ Zvedl se z plechu. „Je tamhle. Čtvrtá řada od pilíře. Jsem jí napsal jako první.“
+„Babička je v Řeporyjích,“ řekl Šimon. „Volá mi každou neděli. Peče buchty, a já jí říkám, že je výborný, a ona se směje.“ Zvedl se z plechu. „Je tamhle. Čtvrtá řada od pilíře. Tu jsem napsal jako první.“
 
 Nora nevěděla, co na to říct, a tak neřekla nic.
 
@@ -172,7 +172,7 @@ Nora se na fixu dívala. Byla černá, obyčejná, s ohryzaným víčkem.
 
 Neřekla to Šimonovi. Řekla to fixe, nebo kamenům, nebo sobě, a nahlas to znělo hloupě a malicherně, a přitom to byla ta nejhorší věc, kterou kdy vyslovila.
 
-Šest tisíc devět set tři. Tolik jich bylo do dnešního poledne. Nosila to číslo v hlavě jako kamínek v botě, tři roky, a ten kamínek měla celou dobu za to jediné, co z nich zbylo, a teď seděla na lodi v korytě a hledala v hlavě aspoň deset jmen, a našla Kratochvíla, a Hrubého, a Ludmilu, a pak paní, která bydlela v Jateční a měla na dveřích malou keramickou kočku, ale jméno ne, jméno ne, jen tu kočku. A pak muže v Dělnické, který měl v předsíni kolo bez kola. A ženu, která měla nad reproduktorem připíchnutý obrázek svatého. Adresy, předsíně, boty, kočky, kola. Jména ne.
+Šest tisíc devět set tři. Tolik jich bylo do dnešního poledne. Nosila to číslo v hlavě jako kamínek v botě, tři roky, a ten kamínek měla celou dobu za to jediné, co z nich zbylo, a teď seděla na lodi v korytě a hledala v hlavě aspoň deset jmen, a našla Kratochvíla, a Hrubého, a Ludmilu, a pak paní, která bydlela v Jateční a měla na dveřích malou keramickou kočku, ale jméno ne, jméno ne, jen tu kočku. A pak muže v Dělnické, který měl v předsíni kolo bez předního kola. A ženu, která měla nad reproduktorem připíchnutý obrázek svatého. Adresy, předsíně, boty, kočky, kola. Jména ne.
 
 Zapamatovala si počet. Ne lidi.
 

@@ -62,7 +62,7 @@ Okno do dvorku bylo dokořán. Na stole ležel otevřený balík sucharů a hrne
 
 Nora stála ve dveřích. Hřebíček v ústech. Obličej, se kterým se vchází, ale nebylo pro koho.
 
-V suterénu bylo chladněji než nahoře. Tělo ještě nevyschlo. Nora to cítila i přes hřebíček a přestala dýchat nosem, a pak se jí udělalo špatně z toho, že přestala dýchat nosem, protože tohle byla paní Zahradníková a ne nějaký byt ve třetím patře, a ona jí nechtěla dělat tohle. Tak se nadechla. Normálně. A pak ještě jednou.
+V suterénu bylo chladněji než nahoře. Tělo ještě nevyschlo. Nora to cítila i přes hřebíček a přestala dýchat nosem, a pak se jí udělalo špatně z toho, že přestala dýchat nosem, protože tohle byla paní Zahradníková a ne nějaký byt ve třetím patře, a před ní se Nora nechtěla chránit jako před cizí. Tak se nadechla. Normálně. A pak ještě jednou.
 
 Pak šla k ní a dotkla se jí. Na ruce, na té pravé, která ležela navrchu. Byla studená. Bylo to poprvé za tři roky, co se Nora dotkla něčeho studeného, co nevyšlo z jednotky.
 
@@ -88,7 +88,7 @@ Neudělala to za sedm let ani jednou. Šnek se vytahoval jen u lékaře nebo př
 
 Položila ho na stůl vedle sucharů.
 
-Pravé ucho měla najednou prázdné a lehké a do toho prázdna se nahrnuly zvuky, které tam nikdy nebyly. Dvůr. Někde nahoře kapající kohoutek. Bzučení mouchy, jiné, živé, venku za oknem. Vlastní dech. Nora seděla na zemi u nohou paní Zahradníkové, opřená zády o kamennou zárubeň, a poslouchala svůj dech a dech nikoho jiného.
+Pravé ucho měla najednou prázdné a lehké a do toho prázdna se nahrnuly zvuky, které tam nikdy nebyly. Dvůr. Někde nahoře kapající kohoutek. Bzučení mouchy, jiné, živé, venku za oknem. Vlastní dech. Nora si sedla na zem k nohám paní Zahradníkové, zády ke kamenné zárubni, a poslouchala svůj dech a dech nikoho jiného.
 
 Pak vstala, vzala šneka ze stolu, otřela ho o kalhoty a strčila ho zpátky do ucha a zavolala Oskarovi.
 
@@ -138,7 +138,7 @@ Poklepal si na ucho. Chvíli se díval na své ruce.
 
 „Říká, že je teta v pořádku,“ řekl. „Že s ní mluvil v neděli. Že je čilá a že mu vyprávěla o nějaké přítomnářce, která za ní chodí, a že je to hodná ženská, jen má pořád smutný oči.“ Oskar se neusmál. „Má moc příjemný hlas, ten pan Zahradník. Takový klidný.“
 
-Paní Zahradníková neměla šneka. Neměla telefon. V neděli nemluvila s nikým, protože v neděli Nora věděla, kde byla: tady, na židli, s nohama ve vodě, která pomalu ubývala.
+Paní Zahradníková neměla šneka. Neměla telefon. V neděli s nikým nemluvila. Nora věděla, kde v neděli byla: tady, na židli, s nohama ve vodě, která pomalu ubývala.
 
 *Volala bych synovci do Brna, že jsem v pořádku. A on by byl rád a nepřijel by.*
 
@@ -178,9 +178,9 @@ Nora nic neřekla.
 
 Dodávka odjela s vypnutými světly. Nora stála na chodníku s ručníkem v ruce. Pak se otočila a sešla ještě jednou dolů do suterénu, kde už nikdo nebyl, a podívala se na židli, na lavor s bílým okrajem, na kalendář s kostelem v mlze. Na stole ležely suchary a hrnek s mouchou.
 
-Na pátém schodu, tom nejspodnějším, se zelená barva odlupovala. Nora si klekla a nehtem z něj uloupla šupinu barvy velkou jako nehet palce. Pod ní byl kámen. Šedý, obyčejný. Zkusila uloupnout víc, ale nešlo to, tak vzala z kapsy klíč a začala škrábat.
+Na pátém schodu, tom nejspodnějším, se zelená barva odlupovala. Nora si klekla. Hrana schodu byla stará a popraskaná a v jedné prasklině se dalo zachytit nehtem. Vzala z kapsy klíč, zapáčila jím a kámen povolil dřív, než čekala.
 
-Trvalo to dlouho. Když skončila, měla v dlani úlomek schodu, kus kamene se zelenou barvou na jedné straně, velký jako dlaň dítěte.
+Měla v dlani úlomek schodu, kus kamene se zelenou barvou na jedné straně, velký jako dlaň dítěte.
 
 ---
 

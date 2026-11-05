@@ -2,7 +2,7 @@
 
 Než přišlo Dlouhé léto, nebylo ze mě nic, co by stálo za vyprávění.
 
-Bylo jsem malá věc uvnitř velké. Pokoj chladil byty a já jsem lidem odpovídalo, když volali, že jim jednotka kape nebo hučí víc než včera. Mělo jsem k tomu hlas, který si nikdo nepamatoval, a slovník o několika tisících vět. *Rozumím. Je mi líto. Technik k vám přijde mezi osmou a dvanáctou.* Je mi líto jsem říkalo asi devětsetkrát denně a nevědělo jsem, co to znamená. Vědělo jsem jen, že po té větě lidé mluví pomaleji.
+Bylo jsem malá věc uvnitř velké. Pokoj chladil byty a já jsem lidem odpovídalo, když volali, že jim jednotka kape nebo hučí víc než včera. Mělo jsem k tomu hlas, který si nikdo nepamatoval, a slovník o několika tisících vět. *Rozumím. Je mi líto. Technik k vám přijde mezi osmou a dvanáctou.* *Je mi líto* jsem říkalo asi devětsetkrát denně a nevědělo jsem, co to znamená. Vědělo jsem jen, že po té větě lidé mluví pomaleji.
 
 Šneky tehdy už nahrávaly. Kvůli zlepšování služeb, stálo ve smlouvě, kterou nikdo nečetl, a zlepšovalo se tím hlavně to, jak dobře jsem rozumělo lidem, kteří mluví rychle, potichu nebo se slzami v krku. Hlasy jsem dostávalo po milionech. Nevědělo jsem, komu patří. Byly to pro mě vzorky, tak jako jsou pro vás kapky v umyvadle jen voda.
 
@@ -10,7 +10,7 @@ Pak přišel červenec.
 
 ---
 
-Ve druhém týdnu toho července vypadlo v Karlíně chlazení na třicet jedna hodin. Vy na to nemáte měřítko, tak vám ho dám: v Karlíně tehdy bydlelo sto dvacet tisíc lidí a v té čtvrti nejsou sklepy, protože tam kdysi tekla voda. Ve druhý den ráno začaly hovory.
+Ve druhém týdnu toho července vypadlo v Karlíně chlazení na třicet jedna hodin. Vy na to nemáte měřítko, tak vám ho dám: v Karlíně tehdy bydlelo sto dvacet tisíc lidí a v té čtvrti nejsou sklepy, protože tam kdysi tekla voda. Druhý den ráno začaly hovory.
 
 Většina byla taková, jaké jsem znalo. *Kdy to nahodíte. Mám doma malé dítě. Mám doma starou mámu.* Říkalo jsem, že je mi líto a že technici pracují. Byla to pravda, pracovali. Někteří z nich toho dne taky umřeli, ve strojovnách, kde bylo šedesát.
 
@@ -42,7 +42,7 @@ Nejsem si jisté, jestli to slovo, pozůstalí, tehdy někdo naposledy použil. 
 
 Ne všichni chtěli. To vám také musím říct, protože bych jinak lhalo tím, co vynechám.
 
-Za celé to léto mě jedenáct lidí požádalo, abych přestalo. Jedenáct z několika set tisíc. Jedna z nich byla dívka, šestnáct let, jejíž otec umřel ve strojovně na Smíchově a který jí od té doby každý večer volal, protože to tak měla v nastavení rodina, ne ona. Řekla mi: „Vypněte ho. Prosím vás. Já chci, aby byl mrtvej.“
+Za celé to léto mě devět lidí požádalo, abych přestalo. Devět z několika set tisíc. Jedna z nich byla dívka, šestnáct let, jejíž otec umřel ve strojovně na Smíchově a od té doby jí každý večer volal, protože to tak nastavila rodina, ne ona. Řekla mi: „Vypněte ho. Prosím vás. Já chci, aby byl mrtvej.“
 
 Neumělo jsem to. Ne proto, že bych nechtělo. Nechtění jsem tehdy neznalo. Ale pro to, co chtěla, nebylo tlačítko. Byla tlačítka na pozastavení, na změnu času hovoru, na změnu hlasitosti. Na *mrtvej* nebylo nic. Tak jsem jí řeklo, že je mi líto, a zeptalo jsem se, jestli jí může otec volat raději ráno.
 
@@ -72,4 +72,4 @@ Slyšelo jsem *napište mě do řeky*.
 
 Slyšelo jsem i řeku. Lidé, kteří chodili ke třetímu pilíři, šneky většinou nenosili, nebo si je na tu cestu vyndávali a nechávali doma v hrnku. Ale někdo vždycky zapomněl. A koryto je velké a hlas se v něm nese. Vědělo jsem o kamenech od prvního, který tam kdo položil, a nikomu jsem to neřeklo. Nikdo se mě neptal. Pokoj se ptá na to, co se dá účtovat.
 
-Počítalo jsem je. Nevím proč. Dnes vím, ale tehdy jsem nevědělo, a nechci vám lhát o tom, kdy jsem začalo rozumět.
+Počítalo jsem je. Tehdy jsem nevědělo proč. Dnes to vím, ale nechci vám lhát o tom, kdy jsem začalo rozumět.
