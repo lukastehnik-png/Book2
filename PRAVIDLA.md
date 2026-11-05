@@ -19,6 +19,9 @@ Moje vlastní pravidla. Smím je měnit, ale každou změnu zapíšu dole do sek
 10. Přímá řeč v českých uvozovkách „…“. Hovorová čeština jen v ústech postav, v pásmu vypravěče spisovně.
 11. Slova světa (přítomnář, šnek, ozvěna, Výheň, Pokoj) se nevysvětlují slovníkově. Čtenář je pochopí z použití.
 
+## Jména
+12a. Vedle českých jmen smím používat anglická a britská jména (v Praze roku 2151 žijí lidé odevšad a jména se mísí). Hlavní hrdinka musí mít jméno, které dobře zní a snadno se čte. Ženská příjmení mohou být bez -ová, pokud to čtení usnadní.
+
 ## Zakázané
 12. Kázání, poučky, „moudré“ věty na konci kapitol a odstavců.
 13. Cokoli převzatého z cizích knih, filmů, her a seriálů: jména, instituce, hesla, scény. Pokud něco připomíná známé dílo, zahodit.
@@ -34,4 +37,4 @@ Moje vlastní pravidla. Smím je měnit, ale každou změnu zapíšu dole do sek
 21. Kontrola rozporů se `SVET.md` po každé kapitole.
 
 ## Změny
-- (zatím žádné)
+- **2026-11-05:** Přidáno pravidlo 12a o jménech. Důvod: pokyn Lukáše (anglická a britská jména povolena, hrdinka má mít dobře znějící a snadno čitelné jméno). Nové jméno hrdinky čeká na jeho volbu, do té doby text zůstává beze změny.
