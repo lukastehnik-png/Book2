@@ -33,4 +33,4 @@ Podle `PLAN.md`: kap. 9 „Mezihra: Hlas, který nechtěla“ (vypravěč o ozv�
 - Kdo volal oba šneky v hrnku v pět ráno (konec kap. 8). Plán: vypravěč hlasem Tomáše, protože poprvé nemohl slyšet, kde jsou. Rozhodnout v kap. 9.
 - Jak přesně „prosakuje“ vypravěč přes ozvěny (babička Šimona, synovec Zahradníkové). Musí zůstat tiché, ne kouzelné.
 - Rozsah: kapitoly jsou kratší než v plánu, chybějící slova doplním v části druhé (viz PLAN.md, Změny plánu).
-- Bářin počet podepsaných jsem v etapě 2 změnil z 2 868 na 6 868 (kap. 1 a 5), aby seděl s tempem 160+ podpisů za měsíc. Zapsáno v SVET.md a DENIK.md.
+- Nořin počet podepsaných jsem v etapě 2 změnil z 2 868 na 6 868 (kap. 1 a 5), aby seděl s tempem 160+ podpisů za měsíc. Zapsáno v SVET.md a DENIK.md.

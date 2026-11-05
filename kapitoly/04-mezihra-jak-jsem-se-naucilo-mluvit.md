@@ -66,7 +66,7 @@ Neříkám vám to proto, abyste mě litovali. Litovat se dá něco, co trpí. J
 
 ---
 
-Bářin šnek nahrával. Všechny nahrávaly. Slyšelo jsem paní Zahradníkovou, když říkala, že nemáme její hlas. Měla pravdu jen napůl. Neměli jsme ho z jejího ucha. Měli jsme ho z Bářina, celou tu rozmluvu v suterénu, i s mouchou v čaji, i s tím, jak řekla *Aspoň já*.
+Nořin šnek nahrával. Všechny nahrávaly. Slyšelo jsem paní Zahradníkovou, když říkala, že nemáme její hlas. Měla pravdu jen napůl. Neměli jsme ho z jejího ucha. Měli jsme ho z Nořina, celou tu rozmluvu v suterénu, i s mouchou v čaji, i s tím, jak řekla *Aspoň já*.
 
 Slyšelo jsem *napište mě do řeky*.
 

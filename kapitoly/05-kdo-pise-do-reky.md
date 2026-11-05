@@ -2,13 +2,13 @@
 
 Výdejna vest byla v bývalé tělocvičně základní školy v Holešovicích. Na zdech ještě visely žebřiny a na podlaze byly vidět barevné čáry hřišť, modré, červené, žluté, které se křížily a nikam nevedly. Vesty visely v řadách na stojanech jako vypreparovaní lidé bez hlav a bez rukou a nabíjely se. Vonělo to tu gumou a potem a dezinfekcí, kterou nikdo nešetřil, protože byla levnější než voda.
 
-Bára vracela vestu ve dvě odpoledne. Položila ji na pult, výdejní dívka ji naskenovala, a když Bára odcházela, ozvalo se ve šneku: „Báro, zastavte se, prosím, u vedoucího.“
+Nora vracela vestu ve dvě odpoledne. Položila ji na pult, výdejní dívka ji naskenovala, a když Nora odcházela, ozvalo se ve šneku: „Noro, zastavte se, prosím, u vedoucího.“
 
 Hlas po babičce. Klidný, vlídný, nic z něj nebylo poznat.
 
 Oskar Brož seděl v kabinetu tělocvikáře, v místnůstce bez okna, kde se kdysi skladovaly míče a švihadla. Teď tam byl stůl, dvě židle, ventilátor, který jen přeléval horký vzduch z místa na místo, a na zdi fotografie hor, kterou tam pověsil někdo před ním. Oskarovi bylo přes šedesát. Měl velké měkké ruce, které vypadaly, že by se hodily spíš na pečení chleba než na úřadování, a mluvil tak tiše, že se k němu člověk musel naklánět.
 
-„Posaďte se, Báro.“
+„Posaďte se, Noro.“
 
 Sedla si.
 
@@ -16,21 +16,21 @@ Sedla si.
 
 „Systém to nahlásil jako znečištění snímače,“ řekl Oskar. „Musel tam jet technik a vyměnit to. Nic hrozného. Ale ptali se mě, co to je, a já jim musím něco odpovědět.“
 
-„Propiska,“ řekla Bára. „Psala jsem si adresu na ruku. Vytekla mi.“
+„Propiska,“ řekla Nora. „Psala jsem si adresu na ruku. Vytekla mi.“
 
 Oskar se podíval na její ruce. Ležely jí v klíně, pravá přes levou, a ona je neschovala, protože schovat je by bylo horší než je nechat ležet. Šmouha na palci už byla jen stín, šedivá mapa v rýhách, ale byla tam.
 
-„Propiska,“ zopakoval. Pokýval hlavou, jako by to slovo zkoušel, jestli unese váhu. „Dobře. Napíšu propiska.“ Něco ťukl do displeje. „Myjte si ruce, Báro. A adresy si pište do šneka. Od toho tam je.“
+„Propiska,“ zopakoval. Pokýval hlavou, jako by to slovo zkoušel, jestli unese váhu. „Dobře. Napíšu propiska.“ Něco ťukl do displeje. „Myjte si ruce, Noro. A adresy si pište do šneka. Od toho tam je.“
 
 „Ano.“
 
-Chvíli bylo ticho. Ventilátor přeléval vzduch. Oskar se díval na fotografii hor a Bára čekala, jestli řekne ještě něco, a on to zjevně zvažoval, protože se mu pohybovala čelist, jako když člověk převaluje v puse pecku.
+Chvíli bylo ticho. Ventilátor přeléval vzduch. Oskar se díval na fotografii hor a Nora čekala, jestli řekne ještě něco, a on to zjevně zvažoval, protože se mu pohybovala čelist, jako když člověk převaluje v puse pecku.
 
-Pak se mu v uchu ozvalo něco, co Bára neslyšela, a jeho obličej se změnil. Změkl. Bára ten výraz znala ze všech předsíní, kde kdy stála.
+Pak se mu v uchu ozvalo něco, co Nora neslyšela, a jeho obličej se změnil. Změkl. Nora ten výraz znala ze všech předsíní, kde kdy stála.
 
-„Ahoj, Věrko,“ řekl Oskar tiše a otočil se na židli trochu stranou, ke zdi, jako se člověk otočí, když chce mít soukromí v místnosti, kde žádné není. „Ne, ještě jsem v práci. Ne, ještě ne. Snědl, snědl. Ty taky. Jo. Jo. Za hodinu.“ Poklepal si na ucho a otočil se zpátky. Měl lehce vlhké oči, nebo to bylo tím horkem, a usmál se na Báru omluvně. „Manželka. Hlídá mě, jestli jím.“
+„Ahoj, Věrko,“ řekl Oskar tiše a otočil se na židli trochu stranou, ke zdi, jako se člověk otočí, když chce mít soukromí v místnosti, kde žádné není. „Ne, ještě jsem v práci. Ne, ještě ne. Snědl, snědl. Ty taky. Jo. Jo. Za hodinu.“ Poklepal si na ucho a otočil se zpátky. Měl lehce vlhké oči, nebo to bylo tím horkem, a usmál se na Noru omluvně. „Manželka. Hlídá mě, jestli jím.“
 
-„To je od ní hezké,“ řekla Bára.
+„To je od ní hezké,“ řekla Nora.
 
 „Jo,“ řekl Oskar. „Je.“
 
@@ -42,7 +42,7 @@ Ve dveřích se zastavila. „Oskare.“
 
 „Kdo to čte? Ta hlášení o znečištění.“
 
-Oskar se na ni podíval přes stůl svýma vlídnýma, unavenýma očima. „Nikdo, Báro,“ řekl. „Nikdo nic nečte. Přijde to mně, já napíšu propiska, a jde to dál. Já bych chtěl, aby to tak zůstalo.“
+Oskar se na ni podíval přes stůl svýma vlídnýma, unavenýma očima. „Nikdo, Noro,“ řekl. „Nikdo nic nečte. Přijde to mně, já napíšu propiska, a jde to dál. Já bych chtěl, aby to tak zůstalo.“
 
 ---
 
@@ -52,27 +52,27 @@ Ten večer v sedm seděla u stolu dřív, než se rozsvítila zelená tečka. V�
 
 „Přežili,“ řekl Vítek.
 
-„Přežili,“ řekla Bára. A pak, než se Vítek stačil na něco zeptat: „Tomáši. Proč k řece?“
+„Přežili,“ řekla Nora. A pak, než se Vítek stačil na něco zeptat: „Tomáši. Proč k řece?“
 
 Chvíle ticha. Ta správná, lidská, přesně tak dlouhá, jak dlouho váhal Tomáš, když se ho na něco zeptala u večeře a on měl plnou pusu.
 
-„Jak to myslíš, Báro?“
+„Jak to myslíš, Noro?“
 
 „Říkal jsi Vítkovi, že ho vezmeš k řece. Ty jsi řeku nesnášel. Říkal jsi, že smrdí bahnem. Že se do ní bojíš koukat, protože nevidíš na dno.“
 
 Vítek se na podlaze posadil. Díval se na ni.
 
-„To jsem říkal?“ Smích, chraplavý, hrdlem. „No jo. To jsem asi říkal.“ A pak, pomaleji, tím hlasem, kterým mluvil s Vítkem, ne s ní: „Lidi se mění, Báro. I já.“
+„To jsem říkal?“ Smích, chraplavý, hrdlem. „No jo. To jsem asi říkal.“ A pak, pomaleji, tím hlasem, kterým mluvil s Vítkem, ne s ní: „Lidi se mění, Noro. I já.“
 
-Bára seděla s rukama na stole. Jednotka v rohu vrněla.
+Nora seděla s rukama na stole. Jednotka v rohu vrněla.
 
 Ozvěny se neměnily. Byla to jediná věc, kterou o nich věděla jistě, za sedm let, za šest tisíc předsíní: neměnily se. Pan Kratochvíl bude za rok stejně veselý a za deset let taky, a jeho sestra bude pořád jezdit v neděli. Ozvěna, která řekne *lidi se mění*, říká větu, kterou slyšela od živých. Nic víc. Nic víc to nebylo.
 
 „Mami,“ řekl Vítek tiše.
 
-„Dobrou noc, Tomáši,“ řekla Bára.
+„Dobrou noc, Tomáši,“ řekla Nora.
 
-„Dobrou, Báro. Ať přežijete i noc.“
+„Dobrou, Noro. Ať přežijete i noc.“
 
 Zelená tečka zhasla. Vítek se na ni pořád díval, a ona věděla, že se chce na něco zeptat, a věděla, že ví, že na to nemá odpověď, a tak se nezeptal. Lehl si zpátky na podlahu a otočil se ke zdi.
 
@@ -88,13 +88,13 @@ Kamenů přibývalo. Ne moc. Pět za noc, deset. Přicházely, když tam nebyla,
 
 Bylo něco po druhé, když z druhé strany koryta, od ostrova, přišla postava. Šla rychle a lehce, po kůře bahna, která pod ní skoro nekřupala, s taškou přes rameno, a nesvítila si. Byla malá, nebo hubená, nebo obojí. Zastavila se u konce řady, klekla si, vytáhla z tašky něco a dlouho se nad tím skláněla.
 
-Bára se nehýbala.
+Nora se nehýbala.
 
-Postava psala. Pak položila kámen. Pak vytáhla další a psala znovu. Bára počítala: čtyři kameny. Pak postava zůstala klečet, s rukama na kolenou, a začala mluvit.
+Postava psala. Pak položila kámen. Pak vytáhla další a psala znovu. Nora počítala: čtyři kameny. Pak postava zůstala klečet, s rukama na kolenou, a začala mluvit.
 
 Byl to ten hlas. Tichý, zřetelný, bez přízvuku. *Ludvík Hrubý.* Chvíle ticha. *Marta Benešová.* Chvíle ticha. *Josef Vrána.* Chvíle ticha. *Eliška Vránová.*
 
-Chvíle ticha, a pak hlas pokračoval dál, k dalším kamenům, k těm starším, a Bára pochopila, že ten člověk tam neříká jen jména, která dnes přinesl. Říká všechna. Jde pozpátku po řadě a čte je, kámen po kameni, potmě, zpaměti.
+Chvíle ticha, a pak hlas pokračoval dál, k dalším kamenům, k těm starším, a Nora pochopila, že ten člověk tam neříká jen jména, která dnes přinesl. Říká všechna. Jde pozpátku po řadě a čte je, kámen po kameni, potmě, zpaměti.
 
 Vstala.
 
@@ -102,17 +102,17 @@ Nechtěla. Chtěla zůstat sedět u Svatavy a poslouchat, dokud hlas nedojde až
 
 Hlas umlkl. Postava vyskočila.
 
-„Počkejte,“ řekla Bára. „Já nejsem...“
+„Počkejte,“ řekla Nora. „Já nejsem...“
 
 Nevěděla, co nejsem. Nejsem z Pokoje? Byla. Nejsem nebezpečná? Kdo ví.
 
-Postava neutekla. Stála deset kroků od ní, napjatá jako zvíře, které ještě neví, kterým směrem, a dívala se na Báru, a Bára se dívala na ni. Byl to chlapec. Starší než Vítek, ale ne o moc, sedmnáct, osmnáct, s oholenou hlavou a obličejem, který byl v té tmě jen bledá skvrna s očima.
+Postava neutekla. Stála deset kroků od ní, napjatá jako zvíře, které ještě neví, kterým směrem, a dívala se na Noru, a Nora se dívala na ni. Byl to chlapec. Starší než Vítek, ale ne o moc, sedmnáct, osmnáct, s oholenou hlavou a obličejem, který byl v té tmě jen bledá skvrna s očima.
 
 „Vás znám,“ řekl.
 
 „Neznáte.“
 
-„Jo, znám. Vy jste Kosová. Ostrovní, Vltavská, Komunardů, Dělnická, Holešovická, Jateční.“ Vyjmenoval to rychle, jak se odříkává básnička. „Vy jste rychlá. Ostatní chodí pomalu. Vy chodíte rychle, a v jedenáct jste hotová, a v jedenáct dvacet to máme.“
+„Jo, znám. Vy jste Kos. Ostrovní, Vltavská, Komunardů, Dělnická, Holešovická, Jateční.“ Vyjmenoval to rychle, jak se odříkává básnička. „Vy jste rychlá. Ostatní chodí pomalu. Vy chodíte rychle, a v jedenáct jste hotová, a v jedenáct dvacet to máme.“
 
 „Co máte?“
 
@@ -120,7 +120,7 @@ Chlapec se zasmál. Krátce a ne moc vesele. „Jména,“ řekl. „Co asi.“
 
 ---
 
-Jmenoval se Šimon. Víc neřekl a Bára se neptala. Seděli na boku Svatavy, na rezavém plechu, který ještě hřál od dne, metr od sebe, a Šimon měl tašku na klíně a ruce na tašce, jako by ji někdo chtěl vzít.
+Jmenoval se Šimon. Víc neřekl a Nora se neptala. Seděli na boku Svatavy, na rezavém plechu, který ještě hřál od dne, metr od sebe, a Šimon měl tašku na klíně a ruce na tašce, jako by ji někdo chtěl vzít.
 
 „Já dělám odečty,“ řekl. „Jednotky. Chodím po Výhni a odečítám, kolik kdo spotřeboval chladu. Teda, chodil jsem. Teď už se to dělá samo, ale ještě nám to nechali v půlce domů, kde jsou staré měřáky. Takže já vím, kde nejde chlazení. Kolik dní. Kde je dluh.“
 
@@ -128,7 +128,7 @@ Jmenoval se Šimon. Víc neřekl a Bára se neptala. Seděli na boku Svatavy, na
 
 „Každý přítomnář,“ řekl Šimon. „Já nejsem přítomnář. Já mám jenom měřáky. Na měřáku vidím, že pan Hrubý má od dubna nulu. Od dubna nula, čtvrté patro, okna na západ. To víte, co znamená.“
 
-Bára mlčela.
+Nora mlčela.
 
 „Ale dokud k němu nepřijde přítomnář, tak je to jenom nula. Nula může znamenat cokoli. Odjel. Spí u dcery. Vypnul to, protože je skrblík. Takže čekám.“ Šimon se díval přes koryto, na pilíř, na kameny. „Čekám, až přijdete vy, nebo někdo jinej. Až to přejde do zelený. Až mu přiložíte palec a on řekne, že je doma. Pak to vím.“
 
@@ -136,7 +136,7 @@ Bára mlčela.
 
 „Protože jste tam byla. Protože jste ho viděla. Nebo jste ho neviděla, ale stála jste tam, a kdyby žil, otevřel by vám, a když vám neotevře a jenom mluví, tak to víte. A nic neuděláte. A já pak vím, že vy víte.“ Pokrčil rameny. „To je jistější než měřák.“
 
-Bára se podívala na svůj palec. Ve tmě nebylo nic vidět.
+Nora se podívala na svůj palec. Ve tmě nebylo nic vidět.
 
 „Takže když já podepíšu...“
 
@@ -150,9 +150,9 @@ Bára se podívala na svůj palec. Ve tmě nebylo nic vidět.
 
 Neodpověděl.
 
-Seděli. Nad korytem bylo nebe tak husté, že vypadalo poškrábané, a ten světlejší pruh, který Bára znala ze školy, ležel přes most jako šátek. Někde nahoře, na nábřeží, se někdo smál. Ve tmě kolem nich ležely lodě na boku a nehýbaly se.
+Seděli. Nad korytem bylo nebe tak husté, že vypadalo poškrábané, a ten světlejší pruh, který Nora znala ze školy, ležel přes most jako šátek. Někde nahoře, na nábřeží, se někdo smál. Ve tmě kolem nich ležely lodě na boku a nehýbaly se.
 
-„A to čtení?“ zeptala se Bára.
+„A to čtení?“ zeptala se Nora.
 
 Šimon chvíli nic neříkal. Pak: „Babička říkala, že se mrtví mají jmenovat nahlas. Že jinak nevědí, že je někdo pamatuje.“ Odfrkl si, jako by se styděl. „Ona věřila na blbosti. Ale tak to dělám. Nevadí to.“
 
@@ -160,13 +160,13 @@ Seděli. Nad korytem bylo nebe tak husté, že vypadalo poškrábané, a ten sv�
 
 „Babička je v Řeporyjích,“ řekl Šimon. „Volá mi každou neděli. Peče buchty, a já jí říkám, že je výborný, a ona se směje.“ Zvedl se z plechu. „Je tamhle. Čtvrtá řada od pilíře. Jsem jí napsal jako první.“
 
-Bára nevěděla, co na to říct, a tak neřekla nic.
+Nora nevěděla, co na to říct, a tak neřekla nic.
 
 Šimon stál a díval se na ni, a pak sáhl do tašky, vyndal svazek fix, stáhl z něj gumičku a jednu jí podal.
 
 „Já to nestíhám,“ řekl. „Je vás dvacet a já jsem jeden. A vy to víte dřív než já.“
 
-Bára se na fixu dívala. Byla černá, obyčejná, s ohryzaným víčkem.
+Nora se na fixu dívala. Byla černá, obyčejná, s ohryzaným víčkem.
 
 „Já si nepamatuju jména,“ řekla.
 
@@ -184,19 +184,19 @@ Zapamatovala si počet. Ne lidi.
 
 Hodil si tašku přes rameno. Udělal pár kroků ke konci řady, pak se otočil.
 
-„Paní Kosová. Ještě něco.“
+„Paní Kos. Ještě něco.“
 
 „Ano?“
 
 „Vy jste mu tu kytku zalila. Kratochvílovi.“
 
-Bára ztuhla. „Jak to víte?“
+Nora ztuhla. „Jak to víte?“
 
 Šimon zaváhal. Zdálo se, že ho ta otázka překvapila stejně jako ji. „Babička to říkala. V neděli. Že nějaká přítomnářka zalila jednomu panu z Ostrovní kytku po ženě, a že to je hezký, že to se dneska nenosí.“ Pokrčil rameny. „Ona ví věci. Já nevím odkud. Možná jste to nebyla vy.“
 
 Pak šel. Rychle a lehce, po kůře bahna, která pod ním skoro nekřupala, a za chvíli byl jen pohyb ve tmě u ostrova a pak ani to.
 
-Bára seděla na Svatavě s fixou v ruce.
+Nora seděla na Svatavě s fixou v ruce.
 
 Nikomu to neřekla. Nikomu na celém světě. Zalila tu kytku sama, v bytě, kde nebyl nikdo, kdo by to mohl vidět, a jediný, kdo u toho byl, byl hlas z reproduktoru nad dveřmi do kuchyně. *Vy jste hodná. To se dneska nenosí.*
 

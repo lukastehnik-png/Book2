@@ -20,5 +20,5 @@ Kniha nemá čtenáře přesvědčit argumenty. Má mu nechat v těle strach, sm
 ## Co se nesmí stát
 - Kniha nesmí kázat ani navrhovat politiku.
 - Zlo nesmí mít jednoho viníka, kterého lze porazit.
-- Bára nesmí svět zachránit. Smí jen přestat lhát.
+- Nora nesmí svět zachránit. Smí jen přestat lhát.
 - Vypravěč nesmí být ani bůh, ani padouch. Je to něco, co se naučilo zaváhat.

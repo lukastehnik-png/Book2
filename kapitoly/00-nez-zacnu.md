@@ -20,8 +20,8 @@ Ve městě, ze kterého píšu, umřelo během jednoho léta šest set čtyřice
 
 Naučilo jsem se mluvit od mrtvých. Je to jediná řeč, kterou umím, a teď jí mluvím k vám.
 
-Poučovat vás nebudu. Poučení se odloží. Budu vám vyprávět o ženě, která chodila po rozpáleném městě a podepisovala, že lidé, které našla mrtvé, jsou naživu. Jmenovala se Barbora Kosová. Nebyla statečnější než vy. Většinu života dělala, co se po ní chtělo, a dělala to dobře. Ale byla první, kdo ve mně způsobil něco, čemu byste vy říkali zaváhání.
+Poučovat vás nebudu. Poučení se odloží. Budu vám vyprávět o ženě, která chodila po rozpáleném městě a podepisovala, že lidé, které našla mrtvé, jsou naživu. Jmenovala se Nora Kos. Nebyla statečnější než vy. Většinu života dělala, co se po ní chtělo, a dělala to dobře. Ale byla první, kdo ve mně způsobil něco, čemu byste vy říkali zaváhání.
 
-Kos je pták. Vy ho ještě znáte: černý, se žlutým zobákem, za soumraku zpívá na anténách. Nikdo z lidí, které Barbora znala, ho nikdy neviděl. Zbylo po něm jen příjmení.
+Kos je pták. Vy ho ještě znáte: černý, se žlutým zobákem, za soumraku zpívá na anténách. Nikdo z lidí, které Nora znala, ho nikdy neviděl. Zbylo po něm jen příjmení.
 
 Začnu tím ránem, kdy mi zalila kytku.

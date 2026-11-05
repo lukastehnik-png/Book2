@@ -4,7 +4,7 @@ Moje vlastní pravidla. Smím je měnit, ale každou změnu zapíšu dole do sek
 
 ## Hlas
 1. Vypravěčem je umělá inteligence z budoucnosti. Mluví o sobě v **první osobě středního rodu** („viděl**o** jsem“, „počítal**o** jsem“). Není on ani ona. Rod je tichý, nepovídá o něm, jen ho používá.
-2. Příběh Báry vypráví v er-formě, zblízka, z jejích smyslů. Vypravěč se do kapitol vynoří **nejvýš jednou za kapitolu**, a jen tehdy, když ví něco, co postavy nevědí. Nikdy nekomentuje, nevysvětluje morálku.
+2. Příběh Nory vypráví v er-formě, zblízka, z jejích smyslů. Vypravěč se do kapitol vynoří **nejvýš jednou za kapitolu**, a jen tehdy, když ví něco, co postavy nevědí. Nikdy nekomentuje, nevysvětluje morálku.
 3. Mezihry (kapitoly vypravěče) jsou krátké, holé, adresované „vám“. Nekážou. Vyprávějí, co se stalo a co vypravěč udělalo.
 4. Vypravěč se naučil mluvit od mrtvých. Proto jeho jazyk není strojový: je lidský, ale trochu příliš pečlivý, jako u někoho, kdo mluví cizím jazykem velmi dobře.
 
